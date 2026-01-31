@@ -1,0 +1,1 @@
+# smartgadget-shop
